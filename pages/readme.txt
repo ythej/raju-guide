@@ -1,0 +1,4 @@
+Hello Folks!
+Raju guide is your travel guide which helps you in planning your travel across India..
+If you are in search of a group for your planned trip.. you are at the right place.. 
+Here you can make personal plans with your friends/relatives or family.. But thats not all, many times some of your good friend/travel buddies ditch you at the last moment.. Dw abt it now. You can always check into our group section for your required trip or make a group/plan for a trip and you never know you might find the perfect partner ;) or some travel freaks to tag along with you and make your trip worthy and business wealthy :D 
